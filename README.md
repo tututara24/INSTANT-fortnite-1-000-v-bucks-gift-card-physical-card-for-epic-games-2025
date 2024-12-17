@@ -7,9 +7,9 @@ Not only that, but you’ll also get some free V-Bucks directly from our website
 
 GET IT NOW:
 
-🔴👉 👉[CLICK HERE TO FREE GENERATOR](https://offerbot.xyz/xbox-gift-card/)
+🔴👉 👉[CLICK HERE TO FREE GENERATOR](https://offerbot.xyz/all-gift-card/)
 
-🔴👉 👉[CLICK HERE TO FREE GENERATOR](https://offerbot.xyz/xbox2025-gift-card/)
+🔴👉 👉[CLICK HERE TO FREE GENERATOR](https://offerbot.xyz/all-gift-card/)
 
 🔴👉 👉[CLICK HERE TO FREE GENERATOR](https://offerbot.xyz/all-gift-card/)
 
